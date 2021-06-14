@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @doge247
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on scratch,gaming, or coding
+- 📫 How to reach me, email:biggerhead247@gmail.com or timothyf75@outlook.com
